@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Anything
 - 📫 How to reach me text
 - 😄 Pronouns: him
-- ⚡ Fun fact: im him 
+- ⚡ Fun fact: i enjoy indulging in "fortnite"
 
 <!---
 popcornman15/popcornman15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
